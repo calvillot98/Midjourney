@@ -9,9 +9,6 @@
 
 Midjourney 在刚开始的时候确实是免费的，一个月有 25 次的免费使用次数，用完就没有了，但是后面更新了，没得免费白嫖了，需要付费才能使用！
 
-### 推荐一个虚拟信用卡开卡平台
-
-推荐一个虚拟信用卡开卡平台，包含香港、美国万事达 VISA 等多种卡头，0 月费使用门槛极低，微信支付宝均可开通使用。支持开通各类海外平台：ChatGPT、Netflix、OnlyFans、Ebay、Shopify、Github、TikTok、Paypal 等各类订阅海淘平台。点击查看详情：[https://www.fomepay.com/](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
 
 ## 二. Midjourney 的收费情况
 
